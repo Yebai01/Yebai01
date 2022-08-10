@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Yebai01
 - 👀 I’m interested in all interesting things.
 
+I love playing games and I dream of being a nice game designer！
 Welcome to communicate！
 
 <!---
